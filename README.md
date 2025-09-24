@@ -1,4 +1,4 @@
-👋 Hi, I'm Khanyisile Sekatane
+👋 Hi, I'm Khanyisile Sekatane.
 
 **Software Developer | Junior Programmer | Client Service Consultant**
 
